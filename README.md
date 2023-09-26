@@ -1,1 +1,1 @@
-# my-first-repo
+My name is Mohammad Kanoongo. I was born and raised in Brooklyn, NY. My parents are from Pakistan. I love to play sports. 
